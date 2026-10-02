@@ -1,1 +1,0 @@
-# yhryhorenko-alphanovastudio.github.io
